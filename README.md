@@ -8,4 +8,4 @@ indicated target price!
 ![alt text](https://cdn-cf.cfo.com/content/uploads/2019/12/GettyImages-930264196.jpg "Cryptocurrent Coins")
 ---
 ## Licence & Copyright
-&copy; Soham Shah
+&copy; YASH VIRWAL
